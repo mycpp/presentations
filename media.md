@@ -1,0 +1,11 @@
+## media
+- http://www.epa.gov/cleanpowerplan/fact-sheet-clean-power-plan-opportunities-nuclear-power
+- http://www.epa.gov/cleanpowerplantoolbox
+- http://www.usnews.com/news/articles/2016-02-10/supreme-court-puts-epas-clean-power-plan-on-hold
+- http://www.politico.com/agenda/story/2015/07/inside-the-fight-against-obamas-climate-plan-000134
+- http://www.usnews.com/news/articles/2016-02-10/supreme-court-puts-epas-clean-power-plan-on-hold
+- http://www.usnews.com/news/articles/2015/10/23/mess-of-lawsuits-set-to-challenge-clean-power-plan
+- http://thehill.com/policy/energy-environment/257856-24-states-coal-company-sue-obama-over-climate-rule
+- http://www.reuters.com/article/us-usa-climatechange-states-idUSKCN0ST2HV20151104?feedType=RSS&feedName=environmentNews
+- http://www.eenews.net/interactive/clean_power_plan#legal_challenge_status
+- http://www.detroitnews.com/story/opinion/editorials/2016/02/11/editorial-clean-power-plan-stay/80264048/
